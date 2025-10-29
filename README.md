@@ -1,2 +1,2 @@
 # personaldetails
-Nantale Leticia Hope 2023-b401-10399
+Nantale Leticia Hope 2023-B401-10399
